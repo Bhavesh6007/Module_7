@@ -1,4 +1,4 @@
-# Module_7
+# Module_7  Create a PPT for Presentation.
 Module 7) Confidence Building (Activity Session) - Language Barrier , Impromptu
 Speech - IT Policies Briefing
 ● Create a PowerPoint Presentation: Include sections on the basics of personal
